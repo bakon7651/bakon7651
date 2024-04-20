@@ -2,7 +2,6 @@
 👀 I’m interested in computer viruses
 📫 How to reach me: you can't, haha.
 😄 Pronouns: he/him/pew/die/pie
-🇺🇦 Glory to Ukraine
 ❤️‍🩹
 🤫 Mewing
 
