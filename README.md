@@ -1,4 +1,4 @@
-👋 Hi, I’m @bakon7651
+👋 Hi, I’m @bakon7651, but you can call me Edward.
 👀 I’m interested in computer viruses
 📫 How to reach me: you can't, haha.
 😄 Pronouns: he/him/pew/die/pie
